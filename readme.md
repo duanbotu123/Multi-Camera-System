@@ -7,7 +7,8 @@
 ## 位置
 数学科学学院一楼右手起第一个门
 
-![5c7db2f9bf8765762d27b34e8afb154a](https://github.com/user-attachments/assets/12816316-549e-40cf-b72a-711963451b30)
+<img width="1706" height="1279" alt="image" src="https://github.com/user-attachments/assets/f26dfe66-072d-4520-a6d9-d2b7ec935914" />
+
 
 
 ## 简述
